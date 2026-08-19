@@ -1,0 +1,1 @@
+# japan-9929-vps-comparison
